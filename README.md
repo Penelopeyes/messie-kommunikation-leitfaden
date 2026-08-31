@@ -1,4 +1,3 @@
-
 # Kommunikations-Kompass PRO: Der praxisnahe Leitfaden für Sozialarbeiter & Pflegekräfte
 
 **Wie Sie im Umgang mit Messie-Betroffenen Vorwürfe vermeiden, Vertrauen aufbauen und echte Fortschritte erzielen.**
